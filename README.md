@@ -1,1 +1,1 @@
-# Yayn_Pomabamba_Ancash_2024
+# Yayno_Pomabamba_Ancash_2024
